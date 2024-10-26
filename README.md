@@ -53,7 +53,7 @@ I enjoy creating bots, automating processes, and taking on challenging projects 
 ---
 
 ## 📫 Let's Connect
-- **Email**: [colepearson619@gmail.com](mailto:tronsdc@gmail.com)
+- **Email**: [tronsdc@gmail.com](mailto:tronsdc@gmail.com)
 - **LinkedIn**: [LinkedIn Profile](#)
 - **Website**: [Soon](#)
 
